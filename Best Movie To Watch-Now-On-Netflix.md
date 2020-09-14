@@ -1,6 +1,6 @@
 Everyone has experienced stress. A difficult day at work, or maybe things just aren't going the right path today. Many things can result in stress. Now, here's the part which makes the difference- how we handle stress is exactly what keeps it from impacting your lifetime negatively. Stress, no matter what some might let you know, is avoidable. Stressful situations are what's often unavoidable.
 
-<a href="https://github.com">awanpra</a>
+<a href="https://flix7.com/">Best Movie To Watch Now On Netflix</a>
 
 
 The acceptance can accept coming from a advanced ambit of accustomed technologies accomplished for many years inside academy or those accustomed in the Industry like Java (core and Advanced, Spring, hibernate), Dot Net (SharePoint 2007), Software Testing, Embedded Systems, VLSI, IBM Mainframes, Oracle Applications, Linux Administrator, Data Warehousing, SAS, PHP (Advance PHP), C Language, MCSE, CCNA, CCNP etc. After the acceptance accept called a accurate acreage they could yield able accomplish by abutting such training programs which entail afterward allowances for that students:
